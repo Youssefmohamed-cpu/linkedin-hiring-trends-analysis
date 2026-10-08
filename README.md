@@ -1,1 +1,1 @@
-Linkedi Hiring Trends Analysis 
+Linkedin Hiring Trends Analysis 
